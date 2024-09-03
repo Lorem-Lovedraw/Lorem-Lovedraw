@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Lorem-Lovedraw
+- 👀 I’m interested in creating games and maybe RPG tools
+- 🌱 I’m currently learning C#
+- 💞️ I’m looking to collaborate on RPG community
+- 📫 How to reach me: Don't.
+- 😄 Pronouns: Any
+- ⚡ Fun fact: Got autism.
